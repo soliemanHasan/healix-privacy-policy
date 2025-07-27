@@ -1,0 +1,1 @@
+# healix-privacy-policy
